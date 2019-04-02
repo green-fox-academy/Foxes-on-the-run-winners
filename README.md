@@ -1,4 +1,4 @@
-# Foxes-on-the-run-winners
+# Hackathon díjazottak
 
 ## 1 🏆🏆🏆
 
